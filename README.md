@@ -1,1 +1,0 @@
-# timur_tiny_house
